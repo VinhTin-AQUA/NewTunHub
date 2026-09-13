@@ -1,0 +1,55 @@
+<div class="min-h-screen bg-linear-to-br from-slate-50 to-slate-200 py-12 px-4">
+    <div class="max-w-7xl mx-auto">
+        <!-- Header -->
+        <div class="text-center mb-12">
+            <h1 class="text-4xl md:text-5xl font-bold text-slate-800 mb-4">
+                Welcome to <span class="text-blue-600">NewTun Hub</span>
+            </h1>
+            <p class="text-lg text-slate-600 max-w-2xl mx-auto">
+                Explore funny tools
+            </p>
+        </div>
+
+        <!-- Menu Grid -->
+        <div class="grid grid-cols-1 md:grid-cols-2 lg:grid-cols-4 gap-6">
+            @for (menu of menus; track $index) {
+                <a
+                    [routerLink]="menu.route"
+                    class="group relative bg-white rounded-2xl shadow-lg hover:shadow-2xl transition-all duration-300 transform hover:-translate-y-2 overflow-hidden cursor-pointer"
+                >
+                    <!-- Gradient overlay on hover -->
+                    <div
+                        class="absolute inset-0 bg-linear-to-br opacity-0 group-hover:opacity-100 transition-opacity duration-300"
+                        [ngClass]="menu.color"
+                    ></div>
+
+                    <!-- Content -->
+                    <div class="relative p-6 flex flex-col items-center text-center h-full">
+                        <!-- Icon -->
+                        <div
+                            class="text-5xl mb-4 transform group-hover:scale-110 transition-transform duration-300"
+                        >
+                            {{ menu.icon }}
+                        </div>
+
+                        <!-- Title -->
+                        <h2
+                            class="text-xl font-bold text-slate-800 mb-2 group-hover:text-white transition-colors duration-300"
+                        >
+                            {{ menu.title }}
+                        </h2>
+
+                        <!-- Description -->
+                        <p
+                            class="text-sm text-slate-600 group-hover:text-white/90 transition-colors duration-300 mb-4"
+                        >
+                            {{ menu.description }}
+                        </p>
+
+                        
+                    </div>
+                </a>
+            }
+        </div>
+    </div>
+</div>
