@@ -1699,4 +1699,152 @@ Happy Love Yourself Sticker
 https://i.giphy.com/BsWebrwkkjshrtz7bC.gif
 Happy Flower Sticker by Ari Farley
 https://i.giphy.com/oFXmSp9T9P8D8mfDyy.gif
+Capybara Sticker
+https://i.giphy.com/OgUorGH0Z75b3unoPA.gif
+Family Capybara Sticker
+https://i.giphy.com/hh6n2X2BVWL9DBePPv.gif
+Friends Chilling Sticker by sansanplanet
+https://i.giphy.com/szx3qFGU8BqI8PC9n4.gif
+Happy Dance Sticker
+https://i.giphy.com/5j5ZLtybC9q9avWqX8.gif
+Capybara Sticker
+https://i.giphy.com/yJwhE30sKmcCsZSyRp.gif
+Jump Jumping Sticker
+https://i.giphy.com/FEKv3AxRUWYPCXvV7M.gif
+In Love Hearts Sticker
+https://i.giphy.com/QCMB60hyES3c1bpPPL.gif
+Happy Illustration Sticker
+https://i.giphy.com/rWBEkXG55Aoo4NhapT.gif
+Happy Best Friends Sticker
+https://i.giphy.com/zNTrlsMxLVANIGBmgr.gif
+Good Luck Sticker by Limol Uruguay
+https://i.giphy.com/8o7SbEDOEJrrFZJ87V.gif
+Capybara Hello Sticker by sansanplanet
+https://i.giphy.com/B2mqdjfzVAu5peMjk2.gif
+Capybara 嚇到 Sticker by sansanplanet
+https://i.giphy.com/MpI79m5QGd52vY6G8s.gif
+Capybara Eating Sticker
+https://i.giphy.com/ld5VUOcExAd0SjnCx7.gif
+Rodent Push Up Sticker
+https://i.giphy.com/KxYtkpiNFkXZiI0dvp.gif
+Happy Capybara Sticker by sansanplanet
+https://i.giphy.com/btM5A2EKKhJkLCTXcT.gif
+Run Turtle Sticker
+https://i.giphy.com/rJzrkQOR0xgYRnWF8h.gif
+Happy Dance Sticker
+https://i.giphy.com/1Kx1PSi9gLDCNywUcb.gif
+Oh Man Omg Sticker by sansanplanet
+https://i.giphy.com/bDtzRbWJOwmInd1DQP.gif
+Disney Movie Capybara Sticker by Walt Disney Studios
+https://i.giphy.com/lAYB06mbrfxdMzeHS8.gif
+Bubble Tea Sticker by sansanplanet
+https://i.giphy.com/NcVyqvvSaZhTo7CZYF.gif
+開心 Hello Sticker
+https://i.giphy.com/media.gif
+Capybara Sticker by KolibriDesign by Tamy
+https://i.giphy.com/2rOLi0mCwhPvGPx5rj.gif
+For You Love Sticker
+https://i.giphy.com/XU5ERVcMVEsrgZR3Jh.gif
+Happy Summer Sticker
+https://i.giphy.com/6D9xJVoRBHND2aWWRo.gif
+Happy Walk Sticker
+https://i.giphy.com/ctWFg4j1ebWJTNikGB.gif
+Dance Gay Sticker by Capivarinha
+https://i.giphy.com/icPqCgmvYTpRxDcomz.gif
+Capybara Sticker by yomoyeah
+https://i.giphy.com/GW3qWmpTI9AZ9nJLJK.gif
+Happy Pop Up Sticker
+https://i.giphy.com/AgQA13YwynqfxyiLAa.gif
+Happy Dance Sticker by sansanplanet
+https://i.giphy.com/nnyfdXNdFbslwkTGb8.gif
+Happy Dance Sticker by KdeeStix
+https://i.giphy.com/OK79iyMDvP7PMpdCo1.gif
+Happy Teddy Bear Sticker
+https://i.giphy.com/JoVniw7Sy4kl1SHCuC.gif
+Tabletop Board Games Sticker by Big Potato Games
+https://i.giphy.com/eMaB3dg3eDaPgjzKqF.gif
+Camping Punk Rock Sticker by mxpx
+https://i.giphy.com/Pn783kZHqLfSLRXxY5.gif
+Heart Love Sticker
+https://i.giphy.com/C8ljYMEn4r7RO1Yu9d.gif
+Heart Sticker by Friseur Fontaine de Jouvence
+https://i.giphy.com/VsWW6GTWhhXJPM0kTE.gif
+Plant Mushroom Sticker
+https://i.giphy.com/9OZBjR9v7XIJD8eNPg.gif
+Heart Beige Sticker
+https://i.giphy.com/RJ49KLw3YQsPMNwRmZ.gif
+Fall Chocolate Sticker
+https://i.giphy.com/Lgr3iNXj4sPjODJ8PJ.gif
+Colour Shape Sticker
+https://i.giphy.com/SxAFYPMQf8aMAbF9vI.gif
+Teddy Bear Sticker
+https://i.giphy.com/4Os8jam0MS0dZ7ninc.gif
+Dog Pop Sticker
+https://i.giphy.com/rgZvH7WIPVk6R1Fuqn.gif
+Happy Bike Sticker by LINE FRIENDS
+https://i.giphy.com/f6VXia8XIMv5IyQeFv.gif
+Dragon Boat Linefriends Sticker
+https://i.giphy.com/YnYBr0FHG4kaizP91Y.gif
+Bff Thumbs Up Sticker by LINE FRIENDS
+https://i.giphy.com/FrPuU6OM8Rk0b642tm.gif
+Happy Loop Sticker by Stefanie Shank
+https://i.giphy.com/4Hk7jsJ2bGnJrnbwBt.gif
+Donut Eating Sticker
+https://i.giphy.com/4zV5WdTfyPzhQlY7Lk.gif
+Heart Love Sticker
+https://i.giphy.com/QlFkDKgn1jFs38DVxe.gif
+Wild West Horse Sticker
+https://i.giphy.com/8hd6qGf2fYeWPnQ4zJ.gif
+Flower 花 Sticker
+https://i.giphy.com/4Eo4eamoCSTb01K6IC.gif
+Happy Birthday Love Sticker by LINE FRIENDS
+https://i.giphy.com/QvgH33MpVAq2SC1pWX.gif
+Box Banner Sticker by Twenty20Jewelry
+https://i.giphy.com/hMK3GkcdlpOkm48098.gif
+Nba Playoffs Dance Sticker
+https://i.giphy.com/qPxFyD51gm3u8wlG5G.gif
+Stars Sparkling Sticker by Catharina Stewart
+https://i.giphy.com/CXKhsnmWKUERWeXp4U.gif
+Heart Love Sticker
+https://i.giphy.com/SE4g4V6r8CXlJB3gN4.gif
+Tape Journaling Sticker by zandraart
+https://i.giphy.com/LRZM86OSGEZtHFhYLt.gif
+Heart Love Sticker by ELVAstudios
+https://i.giphy.com/fdeLgaC7ucLKoq9JaT.gif
+Country Music Sticker
+https://i.giphy.com/mKAw3IRHzzEScsnyQ1.gif
+Thumb Up Ok Sticker
+https://i.giphy.com/zHl2mmFFLTQ2dsL8vH.gif
+Bubble Tea Drinking Sticker
+https://i.giphy.com/tZRTlUKdo68zbHsyDz.gif
+Looking Turn Around Sticker
+https://i.giphy.com/sbW2AUZLt98WoenLSl.gif
+Capybara Kapibara Sticker
+https://i.giphy.com/ieDrAFQFHG2XqmFURC.gif
+Capybara Sticker
+https://i.giphy.com/MtPl65pMsSZ39AVD3I.gif
+Comedy Hello Sticker
+https://i.giphy.com/c0wnCxnVfEw2Q4mQSQ.gif
+Dance Love Sticker
+https://i.giphy.com/qjcp0PP5sx3ZXKkYsp.gif
+Happy Halloween Sticker
+https://i.giphy.com/9Y49ZNyoxnY3Iwk7jA.gif
+Feliz Navidad Christmas Sticker
+https://i.giphy.com/xYBHvKn4oZqBqh4GC8.gif
+Happy Capybara Sticker
+https://i.giphy.com/HqcfJIVjVObbMNPCJd.gif
+Happy Comedy Sticker
+https://i.giphy.com/AMjOjUwonGHD2N117l.gif
+Comedy Omg Sticker
+https://i.giphy.com/WarWGtMjjN4GCjnS1T.gif
+Happy I See You Sticker
+https://i.giphy.com/D0TkXvyXV9oIdHhu7f.gif
+Friends Love Sticker by Kennysgifs
+https://i.giphy.com/4YvGWQ4XMBa91VDr2m.gif
+Happy Nom Nom Sticker by Kennysgifs
+https://i.giphy.com/BkYITE2DhbhaSWT1Jg.gif
+Happy Chef Sticker
+https://i.giphy.com/erGRt87JAhOvQjIT7y.gif
+Christmas Noel Sticker
+https://i.giphy.com/mNCHdZEMT2Af3K7zqk.gif
 `;
